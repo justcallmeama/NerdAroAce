@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NerdAroAce
 - 👀 I’m interested in Indie Videogames, the furry fandom and aviation.
-- 🌱 I’m currently learning aviation for getting a SPL license
+- 🌱 I’m currently learning aviation for getting a SPL sailplane license
 - 💞️ I’m looking to collaborate on nothing, i barely code at all
 - 📫 How to reach me discord (username: justcallmeama )
 - 😄 Pronouns: any
