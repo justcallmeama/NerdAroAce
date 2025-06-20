@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NerdAroAce
+- 👋 Hi, I’m @justcallmeama
 - 👀 I’m interested in Indie Videogames, the furry fandom and aviation.
 - 🌱 I’m currently learning aviation for getting a SPL sailplane license
 - 💞️ I’m looking to collaborate on nothing, i barely code at all
